@@ -35,4 +35,4 @@ I am open to collaborations and contributions to enhance the model's capabilitie
 
 Contact:
 
-For more information or collaboration, connect with me on LinkedIn.
+For more information or collaboration, connect with me on [LinkedIn Profile](https://www.linkedin.com/in/williamhoover70/).
